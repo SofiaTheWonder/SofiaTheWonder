@@ -3,11 +3,11 @@
 - 🌱 I’m currently learning Ukrainian, and grantwriting
 - 💞️ I’m looking to collaborate on projects to help Ukraine 🇺🇦 
 
-*(+) not my real last name
+*(+) not my real last name*
 
-*(++) Ukrainian-American with citizenship in both countries
+*(++) Ukrainian-American with citizenship in both countries*
 
-*(+++) Painting, sewing, crocheting, sketching, cardboard art, carpentry, and woodworking to name a few
+*(+++) Painting, sewing, crocheting, sketching, cardboard art, carpentry, and woodworking to name a few*
 
 
 <!---
